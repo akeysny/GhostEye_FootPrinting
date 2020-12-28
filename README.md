@@ -19,3 +19,4 @@ Tools we review
 - This information shall only be used to expand knowledge
 
 <img src="http://g.recordit.co/YvmRMXRpCM.gif">
+<img src="http://g.recordit.co/bOrt9CvfuQ.gif">
